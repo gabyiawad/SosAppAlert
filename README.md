@@ -1,4 +1,4 @@
-# Privacy Policy for SOS App
+# Privacy Policy for Prime SOS
 
 **Effective Date:** September 2025
 
