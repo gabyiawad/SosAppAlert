@@ -1,4 +1,4 @@
-# Privacy Policy for Prime SOS
+# Privacy Policy for SOS Alert
 
 **Effective Date:** September 2025
 
